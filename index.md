@@ -1,8 +1,7 @@
 ## What's so special about BCD? 
 
-It was developed by highly trained engineers in Bacolod, Philippines.  We're all very smart, one of our engineers
-has an IQ of 270.
-
+It was developed by highly trained engineers in Bacolod, Philippines.  We're all very smart. 
+One of our engineers has an IQ of 270.
 
 ## How much will BCD cost?
 
