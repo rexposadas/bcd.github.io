@@ -6,7 +6,7 @@ has an IQ of 270.
 
 ## How much will BCD cost?
 
-Since it's based on kickbacks and deceit. It'll cost you everything. 
+Since it's based on kickbacks and deceit. It'll cost you everything.
 
 ## Is BCD publically traded? 
 
