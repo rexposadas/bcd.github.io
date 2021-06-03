@@ -8,8 +8,7 @@ has an IQ of 270.
 
 Since it's based on kickbacks and deceit. It'll cost you everything.
 
-## Is BCD publically traded? 
+## Is BCD publicaly traded? 
 
 No. Of course not. You want us to go to prison? 
-
 
